@@ -1,2 +1,2 @@
-:![9d846c7c532da1541bee323ebc0418a5](https://github.com/user-attachments/assets/594af932-4ca0-4163-8bf8-27261ad53004)
-### HACKEO PORQUE QUIERO CONOCER
+![869ed7e5ff471c0479c55fd8430640c2](https://github.com/user-attachments/assets/7910227d-7e81-4d33-a793-321d8a3675f4)
+# Hackeo, porque no conocer me molesta.
