@@ -1,2 +1,2 @@
-![869ed7e5ff471c0479c55fd8430640c2](https://github.com/user-attachments/assets/7910227d-7e81-4d33-a793-321d8a3675f4)
 # Hackeo, porque no conocer me molesta.
+![348e2c524ecaafa6f235e7256bc80a3e](https://github.com/user-attachments/assets/677f33b6-6b19-4783-a822-5ffcf9db400d)
